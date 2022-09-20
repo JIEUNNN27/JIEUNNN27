@@ -2,6 +2,10 @@
 
 :open_file_folder:[Notion](https://itsmejieun.notion.site/JIEUN-PARK-e8839e35688141468f1cb299240a42df)
 
+:mortar_board:Bachelor of Science in Physics (Ewha Womas University)
+
+:pencil2:Studying for Master's Degree in Artificial Intelligence Convergence (Ewha Womas University, 22.09~)
+
 E-mail : silvia0127@naver.com
 
 
