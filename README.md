@@ -1,3 +1,5 @@
+:smiley: Hi
+
 :open_file_folder:[Notion](https://itsmejieun.notion.site/JIEUN-PARK-e8839e35688141468f1cb299240a42df)
 
 E-mail : silvia0127@naver.com
