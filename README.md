@@ -4,7 +4,7 @@
 
 :mortar_board:Bachelor of Science in Physics (Ewha Womas University)
 
-:pencil2:Studying for Master's Degree in Artificial Intelligence Convergence (Ewha Womas University, 22.09~)
+:pencil2:M.S. Candidate  in Artificial Intelligence Convergence (Ewha Womas University, 22.09~)
 
 E-mail : silvia0127@naver.com
 
