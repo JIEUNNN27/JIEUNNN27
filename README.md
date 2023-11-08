@@ -1,10 +1,8 @@
 :smiley: Hi
 
-:mortar_board:Bachelor of Science in Physics (Ewha Womas University)
+:page_facing_up:[Linkedin](www.linkedin.com/in/ji-eun-park-8177b1268)
 
-:pencil2:M.S. Candidate  in Artificial Intelligence Convergence (Ewha Womas University, 22.09~)
-
-E-mail : silvia0127@naver.com
+:e-mail: silvia0127@naver.com
 
 
 
